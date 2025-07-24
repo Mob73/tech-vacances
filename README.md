@@ -81,5 +81,6 @@ Dans cette séance, vous aborderez :
 
 ---
 
-**Bonne progression ! 🚀**
+
+
 
